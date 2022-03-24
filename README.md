@@ -11,4 +11,5 @@
 4. It breaches privacy
 5. It's bad
 
-![Anti-Monitor](https://user-images.githubusercontent.com/101962656/159991086-822e27c4-9ba1-4fd4-863a-52e60df2d1fd.jpg)
+![752f97c099741c38407dd4ffb2787020](https://user-images.githubusercontent.com/101962656/159999811-f4f4890e-f0c9-4a65-9034-903c51d1b18f.jpg)
+
